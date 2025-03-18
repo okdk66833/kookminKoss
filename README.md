@@ -1,2 +1,1 @@
 # kookminKoss
-# kookminKoss
